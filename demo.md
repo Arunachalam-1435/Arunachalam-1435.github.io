@@ -1,1 +1,0 @@
-# Arunachalam Writeups
